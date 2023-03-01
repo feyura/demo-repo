@@ -3,3 +3,4 @@ fasdfad
 
 oianoisai
 
+MUDEI VIA CLI
