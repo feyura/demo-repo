@@ -1,7 +1,1 @@
-tirei tudo
-FADFA
-EU
-VOCE
-ME
-AMA
-
+eu deletei tudo!!!!
